@@ -1,2 +1,2 @@
-Я просто пытаюсь создать новеллу. 
-P.S. Это может дополняться.
+I'm just trying to create a novel.
+P.S. This can be supplemented.
